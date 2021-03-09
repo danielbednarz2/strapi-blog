@@ -1,2 +1,2 @@
 # Discover Boldly
-https://wwww.discoverboldly.com
+https://www.discoverboldly.com
